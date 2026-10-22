@@ -9,5 +9,5 @@
         (⑉ｰ . ｰ⑉) @rowwannieㅤ﹟ㅤ@eternityleaf <3ㅤ𝗞𝗒𝗎𝗍𝗂𝖾𝗌 .
           <p align="center">
   .     ˖      ｡     𓐇   .
-<div id="header" align="center">  <img src="https://komarev.com/ghpvc/?username=kyutbie&style=flat-square&color=f2e5e4&label=roses" alt=""/>
-<p align="center"> <img src="https://media.discordapp.net/attachments/1289532268938924123/1544953453669777458/Untitled84_20260903140839.png?ex=6a9a6187&is=6a991007&hm=37d8706c202f4ab928ba488a45826c0f2d3fea98643660ab033240bed329ddc5&=&format=webp&quality=lossless&width=1024&height=576" width="1000" height="400" /> </p>
+<div id="header" align="center">  <img src="https://komarev.com/ghpvc/?username=kyutbie&style=flat-square&color=d192AE&label=roses" alt=""/>
+<p align="center"> <img src="https://media.discordapp.net/attachments/1484912486296715294/1562835522940960878/userbox.png?ex=6adb6f80&is=6ada1e00&hm=95c2edbc0212c9919e13f7e1aaefb8db9634e7393a215587e5a208f7bb1ceca4&=&format=webp&quality=lossless&=&format=webp&quality=lossless&width=1024&height=100" width="500" height="100" /> </p>
