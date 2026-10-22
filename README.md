@@ -6,7 +6,7 @@
     <p align="center">
    ◟⌣ ͜‎ ̣̣   (13+)ㅤ𝗠𝗂𝗻𝗈𝗿   ˖   𝗕isexu𝑎lㅤ𓏼ㅤ𝗚ender𝗳lu𝐢d   ✟
       <p align="center">
-        (⑉ｰ . ｰ⑉) @rowwannieㅤ﹟ㅤ@eternityleaf <3ㅤ𝗞𝗒𝗎𝗍𝗂𝖾𝗌 .
+        (⑉ｰ . ｰ⑉) <a href="https://github.com/rowwannie">@roryy</a>ㅤ﹟ㅤ<a href="https://github.com/eternityleaf">@nillyy</a> ꒰ᐢ⸝⸝⸝⸝⸝ᐢ꒱⸒⸒ㅤ𝗞𝗒𝗎𝗍𝗂𝖾𝗌 .
           <p align="center">
   .     ˖      ｡     𓐇   .
 <div id="header" align="center">  <img src="https://komarev.com/ghpvc/?username=kyutbie&style=flat-square&color=d192AE&label=roses" alt=""/>
